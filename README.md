@@ -1,2 +1,0 @@
-# BT-TTNT
-BT-TTNT
